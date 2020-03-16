@@ -10,5 +10,5 @@ PHÂN CÔNG CÔNG VIỆC:
 Mọi người làm nháp trong file word tự tạo trước, sau đó định dạng format theo file B7.docx
 Chi tiết công việc trong file BaiTapSo1.pdf
 
-deadline: 20h 16/3
+Link video: https://drive.google.com/file/d/14w2dt4c36cfCMK2Fcl80UICs2zVkxrgY/view
 Cám ơn.
