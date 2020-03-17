@@ -12,3 +12,6 @@ Chi tiết công việc trong file BaiTapSo1.pdf
 
 Link video: https://drive.google.com/file/d/14w2dt4c36cfCMK2Fcl80UICs2zVkxrgY/view
 Cám ơn.
+
+
+LINK SẢN PHẨM CUỐI CÙNG: https://drive.google.com/file/d/1jzhIBeGIRjhpkJmVTrxkVwKJRI30eW12/view?usp=sharing
